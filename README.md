@@ -1,4 +1,4 @@
-Project Title: Egypt's Vision 2030 - Sustainable Development & Environmental Awareness Campaign (رؤية مصر 2030 - حملة التنمية المستدامة والوعي البيئي)
+Project Title: Egypt's Vision 2030  (Sustainable Development & Environmental Awareness Campaign) 
 
 Project Description:
 A comprehensive digital advertising and awareness campaign aimed at enhancing community awareness of "Egypt's Vision 2030," focusing on sustainable development, environmental conservation, expanding green spaces, rationalizing water consumption, and promoting recycling in daily life. The campaign features a diverse bundle of AI-generated video content—including animated/cartoon videos for children and families, cinematic reality-based videos for youth and the general public, and promotional cross-platform ads.
